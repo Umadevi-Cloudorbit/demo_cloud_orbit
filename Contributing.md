@@ -1,1 +1,3 @@
 Contributors list
+uma
+priya
