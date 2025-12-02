@@ -1,3 +1,0 @@
-Contributors list
-uma
-priya
